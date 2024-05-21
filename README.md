@@ -1,2 +1,2 @@
-# Al-Turin.uz
-Al-Turin.uz
+# Al-turinuz
+Al-turinuz
